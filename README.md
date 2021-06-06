@@ -1,6 +1,6 @@
 # {AESTHETIC WEAR}
 #### {Aesthetic wear fashion  }, {6-June-2021}
-#### By **{google aesthetic wikipedia, moringa school **
+#### By **{Mathew wahome, moringa school **
 ## A webage on aesthetic wear and fashion history of aesthetic wear
 {The primary task of aesthetics is not to seek a theory but to elucidate the concept of art. Specifically, it is to describe the conditions under which we employ the concept correctly. Definition, reconstruction, patterns of analysis are out of place here since they distort and add nothing to our understanding of art.the self-esteem gained from experiences that teach self-respect and mutual respect. the exploration of a broad range of human relationships. the opportunity to combine mind and emotion, cognition and sensory experience, analysis and intuition toward understanding something as a whole.In ceation of this webpage the main aim was to bring out the basic aesthetic fashion in a summary }
 ## Setup/Installation Requirements
